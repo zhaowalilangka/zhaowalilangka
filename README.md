@@ -48,9 +48,3 @@
 
 
 ***********************************
-
-#### Thank You-🙏🏼
-
-
-
-⭐️ From [8bithemant](https://github.com/8bithemant)
